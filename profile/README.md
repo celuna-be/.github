@@ -1,4 +1,4 @@
-# Celuna IT Solutions
+# Celuna
 
 Welcome to Celuna! 🚀
 
